@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @eejay15
-- 👀 I’m interested in tech and crypto
-- 🌱 I’m currently learning Data Analytics
-- 📫 email me on balitayo.eejay@gmail.com
+- 👀 I’m interested in tech, crypto and financial charts
+- 🌱 I’m currently want to learn more in Data Analytics
+- 📫 This is how you can reach me: balitayo.eejay@gmail.com 
