@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Eejay
-- 👀 I’m interested in tech
+- 👀 I’m interested in tech and data
 - 🌱 I’m currently want to learn more in Data Analytics
 - 📫 This is how you can reach me: balitayo.eejay@gmail.com 
